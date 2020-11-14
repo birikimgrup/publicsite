@@ -1,3 +1,0 @@
-#  Birikim Grup 
-
-Ankara.
